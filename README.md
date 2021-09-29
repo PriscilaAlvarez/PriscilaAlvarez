@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @PriscilaAlvarez
+- 👀 I’m interested in prepare desserts. I like to learn other languages and know new people who talk different languages. 
+- 🌱 I’m currently learning English and new techniques for baking.
+- 💞️ I’m looking to collaborate on differents international projects. 
